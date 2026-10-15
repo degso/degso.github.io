@@ -1,1 +1,0 @@
-# degso.github.io
